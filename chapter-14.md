@@ -1,133 +1,115 @@
 # Chapter 14: Regrouping
 
-Nathan couldn't stop replaying Dalton's words. "You're filmmakers. Documentarians. This is the greatest story you'll ever find."
+Nathan stared at the journal in Samantha's hands, trying to process what Lisa had just told them. Dalton Reed—alive, functional, living in the projection booth for eleven years. Talking to ghosts. Planning a screening. Inviting them to join his "audience."
 
-The man was right. Infuriatingly, terrifyingly right.
+"This can't be real," Greg said, but his voice lacked conviction. He'd seen Lisa's face when she stumbled in. Seen the terror. "She's mistaken. Saw some homeless guy, got scared—"
 
-They had six hours until sundown. Six hours to prepare, to plan, to decide if they were really doing this insane thing.
+"I wasn't mistaken." Lisa's voice was hoarse but firm. "I saw the shrine. Nine photographs with candles and offerings. I read the journals—eleven years of entries. And I talked to him. Face to face. Dalton Reed is alive, and he's been waiting for us."
 
-"We need a strategy," Kevin said. He'd taken charge immediately after Dalton left, moving into tactical mode. "If we're attending this screening—and I still think it's a terrible idea—we do it smart. Full documentation, defensive positioning, multiple exit routes."
+"Waiting for us specifically?" Kevin demanded. "Or just anyone who showed up?"
 
-"We should leave," Greg said for the tenth time. He was pacing, agitated. "Right now. While we can. Fix the van, drive out, never look back."
+"Us specifically." Lisa wrapped her arms around herself, still shaking. "He watched us arrive. Listened to our conversations. He knows our names, Kevin. All of them. He catalogued us like he catalogues his films. 'The military one who thinks in tactics. The tall one who sees tragic beauty. The woman who analyzes patterns. The frightened one who grounds everything in fear.' He's studied each of us."
 
-"And miss documenting the most important interview of our careers?" Samantha countered. She had her notes spread out, analyzing everything Dalton had said. "A man who's lived in isolation for eleven years, maintaining a drive-in theater for ghosts. Who else will ever get access to this?"
+Nathan felt cold despite the desert heat building outside. Dalton Reed knew them. Had watched them work, heard them talk, analyzed their personalities like a director casting roles. They weren't random victims—they were specifically chosen.
 
-"Access to a murderer," Greg shot back. "Who wants to make us permanent audience members. Did we all collectively forget the part where he burned nine people alive?"
+"What did he say exactly?" Nathan asked. "His exact words about tonight? Try to remember everything."
 
-Nathan stood by the window, watching the projection booth. Dalton was up there somewhere, preparing. Choosing the perfect film, threading it through the projector, arranging his shrine. Creating the experience he'd promised.
+Lisa closed her eyes, and Nathan could see her hands trembling as she recalled the encounter. "He said: 'Sundown. I'm preparing a special screening. I've chosen the perfect film—something that speaks to preservation, loss, nostalgia. You'll watch with the audience. All fourteen of us together. The faithful nine and the new five.'"
 
-"He could have killed us already," Nathan said quietly. "Multiple opportunities. Instead he's asking permission. Inviting us. That means something."
+"Fourteen," Greg repeated. "Nine dead. Five living. He's already counted us as part of his collection."
 
-"It means he's manipulative," Kevin countered. "Building false trust before he springs the trap. Classic predator behavior."
+"Five new members," Samantha read from the journal, voice shaking slightly. She'd found the entry, was reading it aloud. "'October 13, 1983. New visitors. Young cinema lovers. I can tell by how they handle equipment, how they frame shots. They understand film language. The audience insists I welcome them properly. Finally, real people who might appreciate the work. The audience has been patient so long. Now they're rewarded. Five new members.'"
 
-"Or it means he genuinely wants to share something," Samantha said. "His life's work. The thing he's maintained for over a decade. Maybe having a real audience matters more than adding us to his ghost collection."
+She looked up. "He wrote this yesterday. Before we even knew he existed. He'd already decided."
 
-"You're romanticizing him," Lisa said. She'd been quiet since Dalton left, curled in the corner. "He's not misunderstood or tragic. He's delusional and dangerous."
+"Then he knew we were coming," Kevin said. "How? We didn't tell anyone specifically where we were going. Just 'abandoned drive-in near Tucson.'"
 
-"I know," Samantha admitted. "But understanding his delusion doesn't mean agreeing with it. Anthropologists study dangerous cultures. Psychologists interview serial killers. We're documentarians. This is what we do."
+Nathan's mind raced through the timeline. "Greg's grandfather. You said he worked here in the sixties. Knew Dalton. Warned you this place was cursed."
 
-Nathan turned from the window. "Here's what I propose. We attend the screening. We film everything. We let him show us his 'masterpiece.' But we maintain control. We sit where we choose, we keep the van accessible, and at the first sign of danger, we abort."
+Greg nodded slowly, face going pale as he understood. "He thought Dalton died in the desert. Everyone did. But if Dalton's been here all along... if my grandfather ever came back, saw something, heard rumors..."
 
-"Define first sign," Kevin demanded.
+"Dalton might have been watching for years," Nathan finished. "Waiting for anyone connected to the fire to return. Your grandfather mentions the place to you, you mention it to me, word spreads. And Dalton hears somehow. Or he just watches the access road, waiting for anyone curious enough to show up."
 
-"If he locks us in. If he produces weapons. If he starts talking about fire or purification or making us permanent. Anything that suggests transition from showing to trapping."
+"Like us," Lisa said quietly. "We walked right into a trap he's been setting for eleven years."
 
-Kevin considered. "And we're armed. Not guns—we don't have them—but tools. Tire iron, wrenches, anything that can be used defensively. Everyone carries something."
+Samantha was flipping through the journal, reading entries at random. Her academic detachment was cracking, replaced by genuine horror. "Listen to this. January 1973: 'Showed Chinatown tonight. The Morrison children loved it. Sarah cried when the woman died. But Michael explained it's only acting.' He's having conversations with dead children. Detailed, specific conversations. And this—1979: 'Mr. Rollins apologized again for how he treated me. Said he was wrong to cut corners.' The man he murdered is apologizing to him in his delusion."
 
-"That might provoke him," Lisa said.
+She set down the journal, hands shaking. "This isn't simple mental illness. This is a complete reconstructed reality that's been reinforced for over a decade. He's not just crazy—he's built an entire functional world where his actions were justified, where his victims love him, where everything he did was necessary."
 
-"Good. If our being armed makes him reconsider violence, that's exactly what we want."
+"That's what he wants to do to us," Greg said, voice rising with panic. "Add us to that world. Make us permanent members of his fantasy audience. Like the nine victims."
 
-"What if it just makes him more determined?" Samantha asked. "Proves we don't trust him, which breaks whatever rapport he's trying to build?"
+"We don't know that," Nathan said, but the words felt hollow even as he spoke them.
 
-They argued in circles, each position logical from its perspective. Kevin's tactical pragmatism versus Nathan's documentary ambition versus Samantha's academic curiosity versus Lisa's intuitive dread versus Greg's survival instinct.
+"Don't we?" Kevin moved to the window, looking out at the projection booth sitting on its platform in the morning sun. "An arsonist who killed nine people invites us to a screening in the exact location of his crime. 'All fourteen of us together'—he's already counting us as part of his dead audience. What do you think happens when the film ends and we try to leave?"
 
-No consensus. Just fractured positions held together by their vote to stay.
+Silence. Heavy, suffocating silence. No one wanted to voice the obvious conclusion—that Dalton Reed might be planning to create his perfect audience the same way he did in 1972.
 
-Nathan checked his watch. 11:47 AM. Six hours to sundown.
+With fire.
 
-"We use the time to prepare," he decided. "Kevin, you plan defensive positions and exit routes. Samantha, you compile everything we know about Dalton—psychology, triggers, patterns. Lisa, inventory our supplies—food, water, equipment. Greg, you're with me. We're going to test the van."
+"He let me go," Lisa said finally. "He could have trapped me in the crawlspace. Killed me there. But he gave me space. Talked to me from below, never climbed up. Then he left. Told me to tell you all, to debate it, and said we'd come anyway because we're filmmakers."
 
-"I thought we voted to stay for the screening," Greg said.
+"Manipulative bastard," Kevin muttered.
 
-"We did. But we stay on our terms, with the ability to leave if needed. That means confirming the van works before we commit."
+"Or desperate," Samantha countered. "Eleven years alone. Talking to ghosts because he has no one else. Maybe having real people—living witnesses who might understand his work—matters more than adding us to his collection."
 
-They split up. Kevin mapping the lot, identifying cover positions and escape routes. Samantha analyzing her research, looking for patterns that might predict Dalton's behavior. Lisa checking supplies with mechanical precision.
+"You're defending him," Kevin said flatly.
 
-Nathan and Greg walked to the van. The desert sun was brutal now, temperature pushing toward ninety. The van sat where they'd left it, seemingly untouched.
+"I'm analyzing him. There's a difference." Samantha set down the journal. "Yes, he's dangerous. Yes, he's delusional. But his primary need isn't to kill—it's to be understood. Validated. He's maintained this theater for over a decade as an act of preservation. He wants someone to witness it before he dies."
 
-Nathan checked the perimeter first—no new footprints, no signs of tampering. Popped the hood. The distributor cap Kevin had found was back in place, properly seated.
+"Then he can wait for archaeologists," Greg said. "We leave. Right now. Drive to Tucson, call the police, let them handle the homicidal movie projectionist."
 
-"Try starting it," Nathan said.
+Nathan looked at his crew. Greg terrified and ready to bolt. Kevin calculating risks with military precision. Samantha intellectually hooked despite the danger. Lisa traumatized but still clutching her camera, still documenting.
 
-Greg climbed in the driver's seat. Turned the key. The engine turned over immediately, rumbling to life. Greg gave it gas, let it run. It sounded fine.
+And himself—Nathan Pierce, documentary filmmaker, facing the choice between safety and the story of a lifetime.
 
-"Okay," Greg said. "We can drive. So let's drive. Right now. Forget the screening, forget the footage. Just leave."
+"We vote," he said. "One more time. Final vote. Leave right now, or stay until sundown and attend the screening. Whatever the majority decides, we all commit to. No second-guessing."
 
-Nathan wanted to. Part of him—the rational part, the survival-focused part—screamed to do exactly that. Get in the van, drive to Tucson, call police, let professionals handle the dangerous mentally ill man in the ruins.
+"This is insane," Greg said.
 
-But another part, the part that had driven him to film school and documentary work, couldn't let go. This story. This man. This impossible situation that no one would ever believe without evidence.
+"I know. Vote anyway."
 
-"After the screening," Nathan said. "We document this last piece, then we leave. I promise."
+They looked at each other. Five film students in an abandoned drive-in, being invited to watch a movie with a killer.
 
-"Your promises don't mean shit if we're dead."
+Kevin spoke first. "If we attend, we do it armed. Tire iron, wrenches, anything we can use as weapons. We position ourselves for quick exit. And at the first sign of threat—any sign—we fight our way out. Those are my non-negotiable conditions."
 
-"Then make sure we're not. Stay alert, stay ready. But give me this. Give me the chance to finish what we started."
+"Agreed," Nathan said.
 
-Greg killed the engine. "You're obsessed, you know that? This isn't about documentation anymore. It's about you needing the perfect ending for your thesis."
+"I want everything documented," Samantha added. "Audio, video, notes. If we're taking this risk, the footage needs to matter. Complete record of what we witnessed."
 
-"Maybe," Nathan admitted. "But I can't walk away. Not when we're this close."
+"That's why we're here," Nathan confirmed.
 
-They returned to find Kevin had mapped a detailed tactical plan. Entry and exit routes, positioning during the screening, hand signals for abort. Military precision applied to watching a movie.
+Lisa was quiet for a long moment. Then: "He knows where we sleep. Where we eat. How many of us there are. If he wanted us dead, we'd already be in danger. Maybe attending is actually safer than refusing. Shows we respect his work, his invitation."
 
-Samantha had profiled Dalton based on his words and behavior. "Narcissistic personality with delusional disorder. He needs validation, approval, to be understood. That's why he's spent years talking to ghosts—they can't disagree with him. Having real people who might validate his choices is intoxicating for him. But it's also terrifying. Because we might reject him, prove his delusion wrong."
+"Or it's exactly what he wants," Kevin countered. "Gets us all in one location at his chosen time. Perfect kill box."
 
-"So how does he resolve that?" Nathan asked.
+"Vote," Nathan said again. "Stay or go."
 
-"Either we genuinely validate him—tell him his dedication was noble, his sacrifices meaningful—and he lets us leave happy. Or we reject him, threaten his delusion, and he..." She trailed off.
+The room fell silent. Outside, wind whistled through the speaker posts—that low, constant moan they'd heard since arriving. In the distance, the projection booth sat on its concrete platform, waiting.
 
-"Eliminates the threat," Kevin finished. "Makes us permanent. Dead people can't disagree."
+"I vote stay," Samantha said. "For documentation. For understanding. For capturing something unprecedented."
 
-"So we lie," Lisa said. "Tell him what he wants to hear. Play along with the delusion. Get through the screening, then leave."
+"Stay," Lisa said quietly. "If we run, we'll always wonder. And he'll still be out there, watching."
 
-"Can you do that?" Samantha asked. "Can you look at a man who burned nine people alive and tell him it was noble?"
+Greg closed his eyes. "You're all insane. But I'm not splitting up the group." He opened his eyes. "Stay. God help us."
 
-Lisa was quiet for a long moment. "To survive? Yes."
+Three for staying. Kevin and Nathan remained.
 
-Nathan felt sick. This was what his obsession had led to—his friends planning to validate a murderer's delusion to escape alive. If they'd left yesterday, none of this would be necessary.
+Kevin shook his head. "This violates every tactical principle I know. We're walking into a trap with full knowledge it's a trap." He looked at Nathan. "Your call. Tie-breaker."
 
-But they hadn't left. And now they were committed.
+Nathan thought about his thesis. The dying drive-in culture he wanted to preserve. The interviews he'd planned, the footage he needed, the story he came here to tell. And now—impossibly—there was more. A man who'd lived eleven years maintaining a theater for ghosts. Who'd killed to save something beautiful and spent a decade justifying it to the dead.
 
-The afternoon dragged. They ate sparingly from their dwindling supplies—crackers, canned soup heated on the camp stove, warm water from jugs that had been sitting in the desert heat. No one had much appetite. Fear sat heavy in all their stomachs, making food taste like ash.
+The greatest documentary footage imaginable.
 
-Nathan filmed preparation footage. Kevin demonstrating exit routes, marking positions on a hand-drawn map. Samantha reviewing notes, cross-referencing Dalton's statements against her research on delusional disorders. Lisa methodically cleaning the camera lenses, hands shaking slightly despite her focused expression. Greg sitting by the window, chain-smoking, watching the booth for any sign of movement.
+Or their deaths.
 
-Documentary instinct capturing every moment. Nathan wondered if anyone would ever see this footage. If they'd survive to edit it. If it would end up as evidence in a murder investigation.
+"Before I vote," Nathan said, "we verify one thing. The van. Kevin, you found the distributor cap yesterday. We need to confirm it's actually fixed. That we can leave if we need to."
 
-The thought made him set down the camera and pick up a tire iron. Just in case.
+"Smart," Kevin said. "Very smart. Don't commit until we know we have an exit."
 
-At 4:00 PM, Dalton could be seen moving supplies from various caches across the lot into the booth. Preparing thoroughly. At 4:30, smoke rose from behind the screen—cooking something, they realized. Making the screening an event. At 5:00, he began his final preparations in the booth itself.
+"Everyone comes," Nathan added. "We check the van together. If it works, if we can drive out right now, then we have a real choice. Stay or go becomes meaningful."
 
-At 5:30 PM, the projection booth came to life.
+The group moved toward the door. Outside, the desert sun was climbing, temperature already pushing toward eighty. Six hours until sundown. Six hours until Dalton Reed expected his audience.
 
-Lights in the windows. The mechanical clatter of the projector warming up. Through binoculars, Nathan could see Dalton moving inside, preparing with meticulous care.
+First, they needed to know if they could leave.
 
-At 5:45, Dalton emerged. He'd cleaned himself—hair wet and slicked back, beard trimmed, wearing what looked like a freshly washed version of his projectionist uniform. Still gaunt, still skeletal, but attempting presentation. Taking pride in his role.
-
-He walked to the center of the lot and called out: "Fifteen minutes. Please take your seats. Tonight's feature is very special. You won't want to miss it."
-
-Then he returned to the booth, leaving them to decide.
-
-"Last chance," Kevin said. "We can still leave. Van works, we have the keys. Nobody would blame us."
-
-Nathan looked at his crew. Greg terrified but loyal. Lisa broken but brave. Samantha fascinated despite fear. Kevin protective despite knowing it was wrong.
-
-"We watch the film," Nathan said. "We document. Then we leave. All of us. Together."
-
-They gathered their equipment. Cameras, lights, audio recorder. Tools concealed in jackets and bags. Moving as a unit toward the massive screen where chairs had been arranged.
-
-Five seats, carefully positioned for optimal viewing.
-
-And in the projection booth, Dalton Reed waited.
-
-The final screening was about to begin.
+Or if they were already trapped.

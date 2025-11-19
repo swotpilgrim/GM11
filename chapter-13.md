@@ -1,135 +1,131 @@
 # Chapter 13: Dalton Reveals Himself
 
-The decision was made: they would attempt contact. Controlled, careful, with Kevin and Nathan taking the lead while the others stayed back. Not an ambush, not a confrontation—an interview. Nathan's camera rolling, documenting everything.
+Lisa couldn't move. Couldn't breathe. The skeletal hand rested on the bottom ladder rung, close enough that she could see dirt crusted under the remaining fingernails. Two fingers missing from the left hand—old scars, clean amputations from some accident years before.
 
-They were preparing equipment when the voice came from outside.
+The voice came from just below. Close. Intimate. But he didn't climb. Stayed there at the base of the ladder, giving her space.
 
-"You found my home."
+"I saw you filming this morning," Dalton said, voice theatrical, strained. "The golden hour light. You understand composition. The way morning transforms decay into beauty. Low angles, patient attention to texture. That's not documentary work. That's art."
 
-Everyone froze. The voice was male, cultured, strained—like vocal cords damaged by years of disuse being forced back into service. It came from just beyond the broken window, close enough to be conversational but not threatening.
+He'd been watching her. Analyzing her technique.
 
-Lisa moved to see. The others followed, maintaining distance from the window.
+"I was just documenting," Lisa managed.
 
-Dalton Reed stood fifteen feet from the snack bar, in full view. Morning sunlight made him starkly visible—every rib showing through his ragged shirt, wild hair and beard sun-bleached and tangled, bare feet calloused to leather. But it was his face that stopped Lisa's breath. Gaunt to the point of skull-like, but the eyes were sharp. Aware. Intelligent.
+"You were creating," he corrected gently. "Finding meaning in ruins. That's what artists do."
 
-He looked directly at the window. Directly at them.
+The hand shifted on the ladder. Lisa flinched, but he didn't climb.
 
-"I saw you filming," he said. His voice had an odd cadence, theatrical. Like he was performing lines. "The young woman with the artist's eye. You understand light. Composition. The way morning transforms decay into beauty."
+"This was a cathedral," he continued, voice taking on a reverent quality. "Do you understand that? Every Friday night, families came here. Not for the stories—they could see those on television for free. They came for the experience. Communal dreaming under stars. Strangers sharing laughter and tears in darkness, connected by flickering light. That's sacred. That's what humanity created to replace church—shared narrative in the dark."
 
-He was talking about Lisa. About her filming at sunrise.
+Lisa could picture it. Car headlights arriving at dusk, children in pajamas bouncing with excitement, the smell of popcorn, couples holding hands, the massive screen coming to life. A ritual, repeated weekly, that had meant something to people.
 
-"You've been watching us," Nathan said. Not a question.
+"Jack Rollins killed it," Dalton said, harder now. "My employer. The owner. He didn't understand. To him, it was just business. When attendance dropped, he cut costs. Cheaper films, shorter seasons, deferred maintenance. He was murdering something beautiful to squeeze out profit. I begged him. Showed him the numbers—how quality programming would bring people back. But he wouldn't listen. Said I was just a projectionist. Said I didn't understand commerce."
 
-"Of course." Dalton smiled, revealing stained teeth. "This is my theater. I watch all my guests. You're filmmakers. Documentary artists, from your equipment. Preservationists of a dying age." He gestured at the ruins around them. "Like me."
+"So you killed him," Lisa whispered.
 
-"We're nothing like you," Greg called out.
+Silence. Long enough that Lisa thought she'd made a terrible mistake. The hand tightened on the ladder, wood creaking under pressure.
 
-Dalton's smile didn't fade. "The nervous one. You're afraid. That's wise. Fear sharpens appreciation. Makes you pay attention."
+Then: "I saved the theater," Dalton said quietly. "I showed him what dedication meant. That some people would rather burn than watch art die. I never wanted the others to die. Just him. Just the man destroying it. But they stayed. Watched the flames come. And when they died..." His voice softened. "They understood finally. What it means to give yourself completely to something greater."
 
-"What do you want?" Kevin demanded. Command voice, trying to establish control.
+Lisa's hands were shaking so badly she had to set down the camera. This was insane. She was crouched in a crawlspace listening to a murderer justify burning nine people alive as an artistic statement.
 
-"The military one," Dalton observed. "You think this is a tactical situation. It isn't. This is theater. I'm the projectionist. You're the audience." He stepped closer, and Kevin moved to block the door. Dalton stopped, hands raised peacefully. "I don't want to hurt you. I want to show you."
+"What do you want?" she asked. The most important question. "From us. From me. What do you want?"
 
-"Show us what?" Samantha asked.
+"To show you," Dalton said simply. "My collection. The films I've preserved. The work I've done maintaining this place for eleven years. Real audience finally seeing what I've built. Real eyes to witness the dedication."
 
-"The notebook one. Research, analysis, patterns. You understand storytelling structure." Dalton's eyes moved across each of them, cataloging. "You're all perfect. Different types of appreciation. The leader who sees beauty in ruins. The scholar who seeks narrative. The skeptic who demands proof. The sensitive one who feels rather than thinks. The frightened one who grounds truth through fear." He nodded, satisfied. "Complete cast. Ready audience."
+"You've been alone all this time?"
 
-Lisa found her voice. "You wrote about us. In your journal. 'Five new members.'"
+"Not alone. The audience is here. The nine faithful souls. I hear them every night. The Morrison children have learned so much—little Sarah used to cry during scary parts, but now she understands it's all craft. They've grown in death. Become perfect appreciators."
 
-Dalton's expression softened. "You read my work. How wonderful. Yes, five new members. The audience has been incomplete for so long. Nine faithful souls, but they hunger for company. For fresh perspective. New eyes to see the films. New hearts to feel them."
+He truly believed it. The delusion was total, unshakeable.
 
-"They're dead," Nathan said carefully. "The nine people. They died in 1972."
+"My friends," Lisa said carefully. "They'll be looking for me soon. They know I came out here."
 
-"They're eternal," Dalton corrected gently. "Death purified them. Removed the distractions of living—bills, work, the outside world. Now they exist only for cinema. Pure appreciation. Perfect audience." He looked at Lisa. "You felt it in the shrine, didn't you? The devotion. The love."
+"I know." The hand withdrew from the ladder. Lisa heard him step back, giving her more space. "The tall one with the camera—Nathan. He sees tragic beauty in ruins. The woman with the notebook—Samantha. She seeks narrative patterns, analyzes structure. The military one—Kevin. He demands proof, thinks in tactics. The frightened one—Greg. He grounds everything in fear, reminds the others of danger. And you. Lisa. The artist who understands light."
 
-Lisa's mouth was dry. "You killed them."
+He knew their names. Had listened to their conversations, catalogued their personalities like he catalogued his films.
 
-"I freed them." Dalton's voice carried absolute conviction. "Jack Rollins destroyed this place. Greed and shortcuts, commerce over art. He was killing cinema one cheap film at a time. Someone had to make a stand. Had to show that some things are worth dying for."
+"You're all perfect," Dalton continued, and there was such hope in his voice it made Lisa's chest ache. "Different types of appreciation. A complete audience. For eleven years I've shown films to the faithful nine, and they've been wonderful. But they can't help with repairs. Can't carry supplies. Can't..." He paused. "Can't provide the validation that comes from living eyes."
 
-"So you burned them alive," Kevin said flatly.
+There it was. The truth underneath the delusion. He was desperately, achingly lonely. Eleven years of talking to ghosts, maintaining a theater for an audience only he could see, preserving something no one living appreciated. He needed them. Needed real people to witness his work, confirm it had meaning.
 
-Dalton flinched. "The fire was necessary. Purification. But I never wanted them to suffer. I thought they'd leave, understand the message. But they stayed. Watched the flames come. And when they died..." His voice dropped to a whisper. "They forgave me. I hear them every night. 'Thank you, Dalton. You saved us from lives wasted on meaningless consumption. Now we watch forever.'"
+"If we watch," Lisa said carefully, "if we see your collection, your films, what happens then?"
 
-The delusion was complete. Total. Lisa could see it in his eyes—he truly believed the nine people he'd murdered spoke to him, approved of him, loved him for what he'd done.
+"Then you understand," Dalton said. "You see what I've sacrificed. What I've preserved. And maybe..." His voice cracked. "Maybe you tell others. Maybe the work continues. Maybe it wasn't all for nothing."
 
-"That's not real," Samantha said gently. "You know that's not real, right? You're alone here. Have been for eleven years. The voices are in your head."
+He wanted recognition. Legacy. Proof that eleven years of isolation and madness had purpose.
 
-Dalton laughed. Not maniacal, but genuinely amused. "Is a voice in your head less real than a voice in your ear? They speak. I listen. We discuss film. What does it matter where the sound originates?"
+"Let me see you," Lisa said. She didn't know why she asked. Morbid curiosity maybe. Or the documentarian instinct to witness, to record, to understand.
 
-He moved closer, and Kevin tensed. But Dalton just sat down on the dirt, cross-legged, like a teacher preparing for a lecture. His hands rested on his knees—skeletal fingers, two missing from the left hand. Lisa saw old scars from some accident long before the fire.
+Movement below. Then he stepped into view through the gaps in the floorboards.
 
-"This was a cathedral," Dalton said, his voice taking on a reverent quality. "Do you understand? Families came here every Friday night. Not for the stories—you could see those on television. They came for the experience. Communal dreaming under stars. Strangers sharing laughter and tears, connected by flickering light. That's sacred. That's what humanity created to replace religion—shared narrative in darkness."
+The Polaroid from 1982 hadn't lied. Dalton Reed was barely human in appearance—skeletal frame wrapped in ragged clothing, wild tangled hair and beard sun-bleached almost white, skin weathered to leather by eleven years of desert sun. Barefoot, his feet calloused thick as boot soles. He looked like something that had died and refused to lie down.
 
-He looked at the massive screen behind him.
+But he stood straight. Hands clasped in front of him with careful dignity, like a host receiving guests. And his eyes—sunken deep in skull-like sockets—were sharp. Aware. Completely lucid within the framework of his delusion.
 
-"Rollins didn't understand. To him, it was business. When attendance dropped, he cut quality. Cheaper films, shorter seasons, deferred maintenance. He was murdering something beautiful to squeeze out profit." Dalton's hands clenched. "I begged him. Showed him the numbers—how quality programming would bring people back. But he wouldn't listen. Said I was just a projectionist, that I didn't understand commerce."
+This wasn't a shambling madman. This was someone who'd made deliberate choices and lived with them for over a decade.
 
-"So you killed him," Nathan said.
+"I was handsome once," he said, seeing her stare. "Had prospects. Women. A future. I gave it all up for this place. For the families. For the sacred ritual of communal cinema." He gestured to the theater around them. "Was it worth it? Ask me in moments of clarity, and I don't know. But ask the audience—" He smiled. "They tell me yes. Every night they tell me the sacrifice mattered."
 
-"I saved the theater," Dalton corrected. "Showed him and everyone what dedication meant. That some people would rather burn than watch art die." He looked at them earnestly. "I never meant for the others to die. Just Rollins. Just the man who was destroying it. But they stayed. Watched. And when they became the audience..." He smiled. "They understood finally. What it means to give yourself completely to cinema."
+"They're not real," Lisa said, forcing the words out. "The voices. The conversations. You're alone here. You've been alone for eleven years."
 
-Lisa realized she was shaking. The logic was insane, but Dalton delivered it with complete sincerity. He truly believed he'd done something noble. Sacrificed for art. Created the perfect audience through murder.
+The smile didn't fade. "Reality is what we perceive. I perceive them. They're real to me. That's enough."
 
-"You want to add us to it," she said quietly. "Five new members. Make us permanent like them."
+He turned, walking toward the booth door with measured steps. Lisa watched through the gaps as he moved across the space below.
 
-Dalton stood, brushing dust from his ragged uniform. "I want to show you first. Tonight. Sundown. A special screening. I've chosen the perfect film—something that speaks to preservation, loss, nostalgia. You'll watch with the audience. All fourteen of us together."
+"Tonight," he called back. "Sundown. I'm preparing a special screening. I've chosen the perfect film—something that speaks to preservation, loss, nostalgia. Something that will help you understand. You'll watch with the audience. All fourteen of us together. The faithful nine and the new five."
 
-"We're not staying for a film," Kevin said.
+"We're not staying," Lisa said. "We're leaving. Today."
 
-"Please." Dalton's voice took on a pleading quality. "Just one screening. Let me share what I've maintained for eleven years. If you still want to leave after, I won't stop you. But give me this—one chance to show real people, living people, what I've built. What the audience means."
+Dalton paused at the door. Looked back up at the crawlspace opening where she crouched.
 
-He was lying. Lisa knew it with absolute certainty. One screening wouldn't be enough. Wouldn't satisfy him. He'd spent eleven years with a ghost audience. Having real people would only make him desperate to keep them.
+"No," he said gently. "You're filmmakers. Documentarians. This is the greatest story you'll ever find. You'll stay because you have to know how it ends. Because walking away means leaving the most important work of your lives unfinished." His eyes met hers through the gaps. "I know you, Lisa Huang. You won't leave. None of you will. The story has you now."
 
-"Tonight," Dalton repeated. "Sundown. I'll prepare everything. Please, honor me with your presence. The audience is so excited to meet you."
+Then he was gone. The door creaked open. His footsteps descended the external stairs with careful precision.
 
-Nathan started to respond, but Dalton was already walking away. Not running, not skulking—walking with measured steps toward the projection booth. He moved like he owned the ground he crossed, completely comfortable in his ruined kingdom.
+Lisa stayed frozen, counting to one hundred. Then two hundred. Making absolutely sure he was gone.
 
-At the booth stairs he paused, turned back.
+Finally, she moved. Scrambled down the ladder with shaking hands, camera banging against her shoulder. The booth was empty, morning sun streaming through the windows. On the floor, the journal lay where she'd set it down. She grabbed it—evidence, proof of everything Dalton had said and done.
 
-"I know what you're thinking," he called out. "That you'll leave before sundown. Drive away, call authorities, bring people with guns." His smile was sad. "But you won't. Because you're filmmakers. Documentarians. And this is the greatest story you'll ever find. You'll stay because you have to know how it ends."
+The shrine watched from above. Nine faces in photographs, candles still burning, offerings arranged with obsessive devotion.
 
-He climbed the stairs and disappeared into the booth.
+Lisa ran.
 
-The group stood in stunned silence.
+Down the stairs, across the lot without caring about stealth. She reached the snack bar, stumbled through the door, nearly colliding with Nathan and Kevin returning from their perimeter check.
 
-"He's right," Nathan said finally. "We're staying."
+"Lisa!" Nathan grabbed her arms. "What were you doing out there?"
 
-"The hell we are," Greg exploded. "Did you not hear him? He's completely insane! He thinks dead people talk to him! He wants to add us to his collection of murder victims!"
+She couldn't speak. Could only shake, the journal clutched tight.
 
-"He said we could leave after the screening," Lisa heard herself say. She didn't believe it, but she said it anyway.
+"What happened?" Kevin demanded.
 
-"You trust him?" Kevin asked.
+"I met him. Dalton Reed. He's alive. Living in the booth." She looked at them. "He's expecting us tonight. For a screening."
 
-"No. But he's been honest about everything else. His delusion, his motivation, what he wants. Maybe he's honest about this too."
+Greg appeared from the back room, face pale. "What?"
 
-"Or maybe it's a trap," Kevin countered. "One final screening before he kills us all."
+Lisa held up the journal. "Eleven years of entries. He talks to the victims. Thinks they're still here watching with him. He wants us to join them. Five new members."
 
-Samantha was writing frantically in her notebook. "He's established himself as non-threatening. Sitting down, keeping distance, asking permission. Classical negotiation tactics. He's trying to build rapport."
+Samantha took the journal, read the recent entries. Her expression shifted from skepticism to horror to fascination. "This is unprecedented. A functional delusional state maintained for over a decade."
 
-"Why?" Nathan asked. "If he wanted to kill us, he could have tried already. Poisoned our water, ambushed us, anything. Instead he's inviting us to watch a movie."
+"This is a death trap," Kevin corrected. "An arsonist wants us at a private screening."
 
-"Because that's his fantasy," Lisa said. "Not killing. Not burning. Having a real audience who chooses to watch. Who understands his devotion. If we're forced, we're not really appreciating. If we come willingly..." She trailed off, the implications sinking in.
+"He let her go," Nathan said quietly. "Why?"
 
-"Then we're validating his delusion," Samantha finished. "Becoming part of the fantasy. Proving he was right all along—that cinema is worth dying for."
+Lisa remembered Dalton's voice. The desperate hope. "He doesn't want to kill us. He wants validation. Proof that eleven years meant something."
 
-They looked at each other. Five film students in a condemned drive-in, being invited to a screening by a man who'd killed nine people and spent eleven years talking to ghosts.
+"So we become permanent audience," Greg said. "Like the nine victims."
 
-"We vote," Kevin said. "Like before. Stay for the screening, or leave now. Majority rules."
+"Or," Samantha said, "we document this. Film everything. Walk away with the most important footage ever captured."
 
-The vote was quick. Nathan and Samantha for staying—the story, the documentation, the need to understand. Greg for leaving—pure survival instinct. Lisa abstained—she couldn't decide, paralyzed by fear and unwanted sympathy for the broken man who saw murder as art.
+Kevin laughed without humor. "You want to watch a movie with a killer. On purpose."
 
-Kevin was the tie-breaker. He stood at the window, looking out at the projection booth where Dalton waited.
+"For documentation," Samantha said. "For understanding. For capturing something that won't exist once Dalton dies."
 
-"We stay," he said finally. "But we stay smart. Armed, alert, with an exit plan. We attend his screening. We film it. And if anything—anything—feels wrong, we abort immediately."
+Five film students in the desert, being invited to a screening by a man who'd killed nine people.
 
-"And if he doesn't let us leave?" Greg asked.
+"We vote," Nathan said. "Stay for the screening, or leave now."
 
-Kevin's expression was grim. "Then we go through him."
+Lisa looked at the journal. At the shrine she'd filmed. At her friends weighing survival against documentation.
 
-Outside, the desert sun climbed toward noon. Six hours until sundown.
+Dalton was right. The story had them now.
 
-Six hours until the final screening.
-
-And somewhere in the booth, Dalton Reed was preparing his masterpiece.
-
-For an audience that might never leave.
+The only question was whether they'd survive telling it.

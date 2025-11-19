@@ -1,151 +1,131 @@
 # Chapter 15: The Van is Sabotaged
 
-Kevin made one final check before they committed. Fifteen minutes until the screening, equipment gathered, defensive plan established. But he needed to confirm the van one more time. Their escape route. Their insurance policy.
+Kevin reached the van first, moving with military efficiency despite the fear coiling in his gut. Their escape route. Their insurance policy. Their way out if Dalton's "invitation" turned into a trap.
 
-"I'm checking the van," he announced. "Nathan, with me. Everyone else stay ready."
+It had to work.
 
-They crossed the lot quickly, sunset painting the desert in orange and gold. Beautiful and terrible, like everything about this place. The van sat where they'd left it, distributor cap in place, seemingly untouched.
+The van sat in morning sun, metal already hot to the touch. Windows dusty, tires properly inflated, everything looking exactly as they'd left it. Kevin opened the driver's door while Nathan moved to the hood.
 
-Kevin opened the driver's door and turned the key.
+"Distributor cap's in place," Nathan confirmed, checking the engine. "Looks right."
 
-The engine turned over. Once, twice. Then died.
+"Try starting it," Kevin said.
 
-He tried again. Same result—starter engaging, engine trying to catch, then nothing.
+Nathan slid into the driver's seat, turned the key.
 
-"Battery?" Nathan suggested.
+The engine turned over. Once. Twice. Then died with a sputter.
 
-"No, the starter's working." Kevin popped the hood, already knowing what he'd find but hoping he was wrong.
+Kevin's stomach dropped. "Again."
 
-He pulled the dipstick for the fuel tank. Bone dry.
+Nathan tried. Same result—starter engaging, engine trying to catch, then nothing. No sustained ignition. No rumble of life.
 
-"Shit," he breathed. Then louder: "SHIT!"
+"Battery?" Lisa suggested, voice hopeful.
 
-He checked the jerry cans they'd strapped to the roof rack. Empty. Both of them, completely drained. He'd filled them in Tucson yesterday—ten gallons of reserve fuel. Gone.
+"Starter's working," Kevin said. He was already checking connections, testing wires, looking for obvious sabotage. Everything seemed intact. Distributor cap seated properly, spark plugs connected, battery cables tight.
 
-Kevin slammed the hood and punched the van's side panel. Metal dented under his fist. Pain shot up his arm. He didn't care.
+Then he pulled the dipstick for the fuel tank.
 
-"He drained it," Kevin said, voice shaking with fury. "While we were preparing, while we were inside planning. He came out here and drained every drop of fuel."
+Bone dry.
 
-"The screening," Nathan said quietly. "He wants to make sure we attend."
+"No," Kevin breathed. The word came out quiet, disbelieving. Then louder as reality hit: "NO. Fucking NO!"
 
-Kevin spun on him. "This is your fault. All of it. We could have left yesterday, but you had to stay for your fucking documentary. Now we're trapped."
+He climbed onto the roof rack with shaking hands, checked the jerry cans they'd strapped there yesterday in Tucson. Ten gallons of reserve fuel for the desert crossing. Insurance against running dry in the middle of nowhere.
 
-"Kevin—"
+Both cans empty. Completely drained. Not a drop left.
 
-"Don't." Kevin cut him off. "Don't justify it. Don't explain. We're twenty miles from civilization with no vehicle, no fuel, and a murderer who's decided we're his next victims. That's on you, Nathan. Your obsession put us here."
+Kevin slammed his fist against the van's roof. Metal boomed. Pain shot up his arm. He didn't care. Rage and terror were warring in his chest, making it hard to breathe.
 
-Nathan's face went pale, but he didn't argue. Because it was true.
+"What?" Greg called from below. "What's wrong?"
 
-Kevin forced himself to breathe, to think tactically despite the rage. Inventory their situation: Five people. Food for maybe two days if they rationed strictly. Water—he checked their supplies—five gallons total. In desert heat, they'd need a gallon per person per day minimum. One day of water.
+"He drained it." Kevin's voice shook. "The fuel tank. The reserve cans. Everything. While we were inside debating whether to trust him, he came out here and sabotaged our only way out."
 
-Temperature forecast he'd heard on the truck stop radio yesterday: high of 90°F.
+Silence. Complete, terrible silence as the implications sank in.
 
-Distance to the highway: 10.3 miles.
+Nathan climbed out of the driver's seat, face pale. "How much did we have?"
 
-"We could hike it," Kevin said. "Tonight, after dark when it's cooler. Ten miles, three hours at forced march pace. We'd be dehydrated by the end, but we'd make it."
+"Full tank—fifteen gallons. Plus ten in the cans." Kevin jumped down from the roof, landing hard. "Enough to get to Tucson and back twice over. He drained every single drop. Probably poured it into his own reserve or just dumped it. Doesn't matter. We're stranded."
 
-"All of us?" Nathan asked.
+"We hike," Greg said immediately. "Fuck the van. We walk to the highway. Ten miles, right? We can make that."
 
-Kevin thought about Lisa, barely 110 pounds, already exhausted from fear. Greg chain-smoking for twenty-four hours, out of shape from construction work and beer. "Maybe not all of us."
+Kevin wanted to say yes. Wanted to believe it was that simple. But his tactical training wouldn't let him lie.
 
-"Then we can't do it. We don't split up."
+"Ten point three miles to the highway," he said. "In desert heat that'll hit ninety degrees by noon. We'd need a gallon of water per person minimum for a hike that long in these conditions. That's five gallons total." He gestured to their supplies visible through the van's windows. "We have exactly five gallons. No margin for error. And that's assuming everyone can make the distance."
 
-Kevin knew he was right. Splitting the group would be fatal. They'd survived this long by staying together.
+He looked at Lisa—barely 110 pounds, already exhausted from her encounter with Dalton. At Greg—chain-smoking for twenty-four hours, out of shape from months of construction work and beer.
 
-"Options," he said, forcing his tactical mind to work. "One: we hike as a group, knowing some of us might not make it. Two: we send the strongest—me and you—for help while the others stay here. Three: we attend the screening and hope Dalton really does let us leave after."
+"We'd lose people," Kevin said flatly. "Dehydration, heat exhaustion, maybe worse. And even if the strongest made it to the highway, then what? Flag down a car, beg for help, send them back? That's hours. Maybe half a day. By the time help arrived..."
 
-"Or four," Nathan said quietly. "We fight. We take him down, search his supplies for fuel or vehicle access, force our way out."
+"We'd be dead," Lisa finished quietly. "Or Dalton would be gone. Disappeared back into the desert like he did in 1972."
 
-"He's armed. We saw the revolver. And he knows this terrain perfectly. We'd be fighting on his ground, in his environment, against someone who's survived alone for eleven years. Tactically, we'd lose."
+Nathan was staring at the projection booth. "He planned this. From the moment we arrived, maybe before. Greg's grandfather knew this place. If he mentioned it to anyone, if word got around that someone was coming to film here... Dalton could have been preparing for days."
 
-"So we're out of options."
+"The journal entry," Samantha said. "October 12th. 'Noticed movement near the entrance. Filmmakers perhaps.' He wrote that the day we arrived. He's been watching since we pulled up."
 
-"We're out of good options," Kevin corrected. "We have desperate options. Risky options. Options that might get us killed but might also get us out."
+"And planning," Kevin added. "Disabling the van, studying our routines, learning our personalities. We're not guests. We're not even victims yet. We're prey. And he's been stalking us from the beginning."
 
-They returned to the snack bar. The others looked up hopefully, then saw their expressions.
+Greg made a sound—half laugh, half sob. "I came here for two hundred dollars. Beer money to get through the semester. My roommate needed footage for his thesis. Now I'm going to die because you wanted to make a documentary about dead drive-ins."
 
-"No fuel," Kevin reported. "Van's disabled. We're trapped."
+He was looking at Nathan. They all were.
 
-Greg made a sound—half laugh, half sob. "I came here for two hundred dollars. Beer money to get me through the semester. Now I'm going to die because my roommate wanted footage for his thesis."
+Nathan couldn't meet their eyes. Kevin was right. This was his fault. His obsession with capturing perfect footage, with telling the complete story, with staying just one more day. If they'd left yesterday like Kevin wanted, they'd be in Tucson now. Safe. Alive. Never knowing about Dalton Reed or his shrine or his eleven years of madness.
 
-"We're not going to die," Kevin said, but the words rang hollow.
+But they'd stayed. And now they were trapped.
 
-"We don't know that," Lisa said softly. "Dalton's been planning this. Since we arrived, maybe before. Everything's been leading to this screening."
+"I'm sorry," Nathan said. The words felt pathetically inadequate. "You're right. All of you. I should have listened. We should have left yesterday."
 
-"Then we give him what he wants," Samantha said. "We attend. We watch his film. We validate his delusion. We tell him it was beautiful, meaningful, worth preserving. Then we ask—politely, respectfully—if we can leave to tell others about his work."
+"Apologies don't get us out of this," Kevin said. But his voice had lost some of its edge. Anger was pointless now. They needed solutions. "Options. Real options. What can we actually do?"
 
-"You really think that will work?" Greg demanded.
+Samantha had her notebook out, thinking analytically despite the fear. "One: we attempt the hike as a group. High risk of casualties but possible. Two: we send the strongest—Kevin and Nathan—for help while the rest of us stay here. Splits the group, leaves three vulnerable. Three: we attend Dalton's screening and attempt negotiation. He wants validation, not necessarily death. Maybe we can give him what he needs and he lets us leave."
 
-"I think it's our best chance. He needs validation from living people. If we give him that, maybe he lets us go."
+"Or four," Greg said darkly. "We wait. Someone will eventually notice we're missing. The university knows where we went. Your parents know, Nathan. Eventually someone sends help."
 
-"Or maybe he makes us permanent so we can never contradict the validation," Lisa countered.
+"Eventually could be days," Lisa said. "We told people we'd be gone through the weekend. It's Thursday. No one's expecting us back until Monday at earliest. That's four days."
 
-Kevin looked at his watch. Ten minutes to sundown. Ten minutes to decide.
+"We don't have four days of supplies," Kevin said. "Water, maybe two days if we ration strictly. Food, three days. And that's assuming Dalton doesn't escalate. If he gets impatient, if he decides we're not cooperating..."
 
-"We vote," he said. "Final vote. Hike tonight—risky, might lose people—or attend the screening—risky, might die there. Majority decides."
+He didn't finish. Didn't need to. They all understood. Dalton Reed had burned nine people alive when they didn't respond the way he wanted. Eleven years of isolation hadn't made him less dangerous. If anything, it had refined his madness, given him time to perfect his methods.
 
-The vote was quick. Samantha for attending—anthropological documentation, best chance to survive through compliance. Nathan for attending—completion of the documentary, validation strategy. Lisa abstained—both options terrified her equally. Greg wanted to hike, damn the risks.
+"The screening," Nathan said. "We attend. We're filmmakers—we document everything. We show him respect, validate his work, make him feel understood. Then we negotiate. Ask permission to leave so we can tell others about what he's preserved. Appeal to his desire for recognition."
 
-Kevin was the deciding vote again.
+"And if he says no?" Greg demanded.
 
-He thought about the desert at night. The darkness, the cold, the distance. Lisa collapsing from dehydration. Greg's smoker lungs giving out. And even if they made it to the highway, what then? Flag down a trucker at 2 AM and beg for help?
+"Then we fight," Kevin said quietly. "Tire irons, wrenches, rocks, whatever we can use. Five against one. We're younger, healthier, fed and hydrated. He's been living on scavenged food for eleven years. We should have the advantage."
 
-Or they could attend the screening. Armed, alert, together. Document everything. Look for opportunities. Play along with Dalton's fantasy until they found a way out.
+"Should," Lisa repeated. "But he knows this terrain perfectly. Knows where to hide, where to ambush, where we're vulnerable. Home ground advantage."
 
-"We attend," Kevin decided. "But we stay combat-ready. At the first sign of threat—fire, weapons, confinement—we fight our way out. Understood?"
+"And he's already killed nine people," Samantha added. "He has experience with violence. Most of us don't."
 
-Everyone nodded.
+Kevin didn't mention that he did. Basic combat training, SERE school, two years in ROTC before switching to film school. But that was training. Not real violence. Not killing. He didn't know if he could actually hurt another person, even to save his friends.
 
-They gathered their equipment with mechanical precision, each movement deliberate despite the fear. Cameras, lights, audio recorder—the tools of documentary work that had brought them here. Kevin distributed the real tools: tire iron to himself, heavy flashlight to Nathan, wrench to Greg. Samantha had a pocket knife she'd carried since college, blade sharp enough to cut through rope or canvas. Lisa carried nothing—her hands wouldn't stop shaking, and Kevin didn't trust her not to drop a weapon.
+They stood in the desert sun, reality settling over them like weight. Trapped twenty miles from help with a murderer who'd spent eleven years planning his perfect screening. No vehicle. Limited supplies. No good options.
 
-"Stay together," Kevin ordered. "No one separates for any reason. If he tries to split us up, we refuse. That's non-negotiable."
+"We vote," Nathan said finally. "One last time. Attempt the hike now despite the risks, or attend the screening tonight and try negotiation. Whatever we choose, we commit fully. No second-guessing."
 
-They nodded, understanding. Divided, they were vulnerable. Together, they had a chance.
+The vote was quick. Greg wanted to hike—better to die trying to escape than passively walking into a trap. Lisa wanted to attend—they were already in Dalton's territory, might as well play by his rules until they found an opening. Samantha wanted to attend—for documentation, for understanding, for the slim chance negotiation might work.
 
-The sun touched the horizon as they walked toward the screen, boots crunching on gravel that hadn't felt human footsteps in over a decade. Five folding chairs sat in a careful arc, positioned for optimal viewing—Dalton had measured the angles perfectly, old projectionist instincts ensuring his audience would have the best experience. Behind them, speaker posts stood silent sentinel. And above, the projection booth waited, lit from within like a lighthouse guiding them to shore or to rocks.
+Kevin abstained. "I'll follow the group decision. My tactical assessment says both options are high-risk. Hiking might kill us through attrition. Attending might kill us through Dalton. Pick your poison."
 
-Dalton appeared in the window, silhouetted against the light. He waved—a gracious host welcoming guests.
+Nathan looked at his crew. Four faces watching him, waiting for his decision. His vote would break the tie.
 
-Kevin's hand tightened on the tire iron.
+He thought about his documentary. The footage they'd captured. Lisa's encounter with Dalton, the shrine, the journals. If they attended tonight, they'd document something unprecedented—a screening hosted by a man who'd lived eleven years in delusional isolation. The most important footage any of them would ever capture.
 
-They reached the chairs. Sat down. Cameras rolling, recording everything. The desert air cooled rapidly, temperature dropping ten degrees in as many minutes.
+If they survived.
 
-The projection booth door opened. Dalton emerged, climbed down the stairs with careful dignity. He'd transformed himself for this—clean clothes, trimmed beard, an attempt at the professional projectionist he'd once been.
+"We attend," Nathan said. "But we go in prepared. Armed. With clear exit strategies. We document everything. We play along with Dalton's fantasy until we find an opportunity. And if we can't negotiate our way out, we fight our way out."
 
-He stood before them, hands clasped, smiling.
+No one cheered. No one argued. They simply nodded, accepting the decision because there were no better options.
 
-"Thank you," he said, voice thick with emotion. "Thank you for coming. The audience has been waiting so long. Eleven years of showing films to grateful spirits. But tonight..." His smile widened. "Tonight we have real people. Living, breathing cinema lovers. This is the night I've dreamed of."
+"Six hours until sundown," Kevin said, checking his watch. "We use that time to prepare. Weapons, defensive positions, supply inventory, escape routes. We attend this screening, but we attend it ready for war."
 
-He looked at each of them in turn—Nathan with his camera, Samantha with her notebook, Kevin with his concealed weapon, Greg with his terror, Lisa with her tears.
+They walked back to the snack bar together, leaving the useless van behind. Behind them, the projection booth sat on its concrete platform. Somewhere inside, Dalton Reed was preparing his masterpiece.
 
-"Tonight's film is very special," Dalton continued. "Chosen specifically for you. A meditation on preservation, loss, and the beautiful things we destroy. It will help you understand. Help you see why some things are worth dying for."
+Threading film through ancient machinery. Arranging seats for an audience of fourteen. Making everything perfect for the screening he'd waited eleven years to host.
 
-Kevin's blood went cold. Worth dying for. Not worth living for. Dying.
+Nine dead victims who existed only in his delusions.
 
-Dalton climbed back to the booth. A moment later, the projector's mechanism engaged. The beam shot out, hitting the massive screen.
+And five living captives who had no choice but to attend.
 
-Film leader countdown appeared. 5... 4... 3... 2...
+The sun climbed toward noon. Desert heat built. Six hours until sunset.
 
-A title card: "The Last Picture Show" (1971, Peter Bogdanovich)
-
-Kevin knew that film. He'd seen it in film school. A story about a small-town movie theater closing, the end of an era, nostalgia for things that die.
-
-Perfect choice for a man who'd killed to save a theater.
-
-The film began. Black and white images filled the screen. The group sat in their chairs, cameras recording, documenting this impossible moment.
-
-And behind them, Kevin heard it: the soft whisper of wind through speaker posts. But underneath, something else. Something that sounded like breathing. Like an audience settling in to watch.
-
-He turned. The lot behind them was empty. Just speaker posts and shadows.
-
-But the breathing continued. Multiple sources. Coming from nowhere and everywhere.
-
-Dalton's ghost audience. Nine victims sitting in invisible cars, watching with them.
-
-Kevin looked at the screen, at the projection booth, at his friends trapped in a madman's final screening.
-
-They were committed now. No escape. No vehicle. No options except to watch and wait and hope.
-
-The show had begun.
+Six hours until the final screening.
 
 And only Dalton Reed knew how it would end.
