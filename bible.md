@@ -23,7 +23,7 @@ Twenty miles from Tucson with no payphone closer than ten miles. The van is thei
 ### NATHAN PIERCE
 **AGE:** 23
 **ROLE:** Leader/Protagonist
-**APPEARANCE:** Lean build, shaggy brown hair to his collar, wire-rimmed glasses, perpetual slight sunburn on his nose. Wears thrift-store button-downs and jeans worn through at the knees. Always has a camera around his neck.
+**APPEARANCE:** Lean build, shaggy brown hair, wire-rimmed glasses, sunburned nose. Wears thrift-store button-downs and worn jeans. Always has a camera around his neck.
 **BACKGROUND:** Senior film major at University of Arizona, working-class kid from Flagstaff whose dad is a mechanic. Nathan is the first in his family to attend college and treats filmmaking with almost religious seriousness. This documentary is his thesis project—documenting abandoned Americana before it disappears completely. He's passionate about preserving what's being lost to strip malls and suburbs. Romantic, idealistic, but capable under pressure.
 **PERSONALITY:** Quietly driven, speaks in careful sentences, listens more than he talks. Patient director who gets what he wants through persistence rather than force. Can be obsessive about his vision. Treats his crew with respect but expects commitment. Becomes protective when danger emerges.
 **ARC:** Begins romanticizing decay and loss, learns some ruins should stay buried. Realizes his nostalgia for a "better America" ignores the violence that was always there. Completes the documentary but questions whether some stories deserve to be told.
@@ -33,7 +33,7 @@ Twenty miles from Tucson with no payphone closer than ten miles. The van is thei
 ### SAMANTHA KELLY
 **AGE:** 22
 **ROLE:** The Brain
-**APPEARANCE:** Strawberry blonde hair usually in a ponytail, freckles, green eyes, compact athletic build. Wears a denim jacket covered in film festival pins, Chuck Taylors, carries a worn notebook everywhere. Smokes constantly when thinking.
+**APPEARANCE:** Strawberry blonde ponytail, freckles, green eyes, athletic build. Wears a denim jacket covered in film festival pins, Chuck Taylors, carries a worn notebook. Chain-smoker.
 **BACKGROUND:** Film history major, scholarship student from Phoenix, raised by a single mom who worked as a movie theater usher. Samantha grew up in projection booths and lobbies, watching classics on slow weekday afternoons. She knows cinema history obsessively, especially the dark stories—studio scandals, tragic stars, the deaths behind the glamour. Works part-time at a repertory theater. Wants to be a film critic or historian.
 **PERSONALITY:** Sharp-witted, fast talker, intellectualizes everything as defense mechanism. Quotes films constantly. Competitive with Nathan (who has the vision, but she has the knowledge). Curious to a fault—always opens the forbidden door. Nervous energy, paces when thinking, chain-smokes.
 **ARC:** Her film knowledge makes her sympathetic to Dalton's cinephilia initially, which blinds her to danger. Learns that loving cinema doesn't excuse violence. Uses her research skills to uncover Dalton's past, finding the key to understanding his delusion.
@@ -43,7 +43,7 @@ Twenty miles from Tucson with no payphone closer than ten miles. The van is thei
 ### KEVIN MORRISON
 **AGE:** 24
 **ROLE:** The Skeptic
-**APPEARANCE:** Stocky, muscular from high school football, crew cut, square jaw, blunt features. Wears a Harley-Davidson t-shirt, work boots, digital watch that beeps on the hour. Has a methodical, mechanical way of moving.
+**APPEARANCE:** Stocky, muscular build, crew cut, square jaw. Wears a Harley-Davidson t-shirt, work boots, digital watch. Moves with methodical precision.
 **BACKGROUND:** Sound and camera technician, non-degree student taking film production classes while working at a TV station. Ex-military (two years Air Force, honorable discharge). From a blue-collar Tempe family, practical and no-nonsense. Treats filmmaking as a technical craft, not an art. Reliable, competent, uninterested in theory.
 **PERSONALITY:** Literal-minded, demands evidence, dismisses anything he can't measure or fix. Speaks in short, declarative sentences. Calm under pressure because he's trained for emergencies. Problem-solver who thinks in systems and mechanics. Not unkind, just blunt.
 **ARC:** Dismisses equipment malfunctions as battery failures and user error until evidence becomes undeniable. Learns to trust intuition when technical explanations fail. His rational approach to Dalton (treating him as a threat, not a mystery) ultimately saves the group.
